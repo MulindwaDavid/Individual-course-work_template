@@ -1,1 +1,1 @@
-# Individual-course-work_template
+# Individual-course-work
